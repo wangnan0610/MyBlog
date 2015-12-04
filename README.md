@@ -1,2 +1,2 @@
 # MyBlog
-My Blog !
+Wangnan On The Way Blog ~
